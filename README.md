@@ -1,1 +1,1 @@
-![image](https://github.com/zhaoyanyu-g/sy/blob/master/img.png)
+![image](https://github.com/zhaoyanyu-g/sy/blob/master/cqshuoyuan.jpg)
